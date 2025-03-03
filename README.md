@@ -2,6 +2,8 @@
 ### call me josh! he/him/his
 ### feel free to interact, I don't bite!
 <img src="https://i.pinimg.com/736x/96/5b/82/965b82bead1896da574951ba3610601e.jpg"/>
+<img src="https://i.pinimg.com/736x/bd/0a/43/bd0a4389eb182228fdba6adf6ef00a49.jpg"/>
+
 
 <!--
 **scalIywag/scalIywag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
