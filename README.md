@@ -1,6 +1,6 @@
-# Howdy! 
-## call me josh! he/him/his
-## feel free to interact, I don't bite!
+## howdy! 
+### call me josh! he/him/his
+### feel free to interact, I don't bite!
 
 <!--
 **scalIywag/scalIywag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
