@@ -1,7 +1,7 @@
 ## howdy! 
 ### call me josh! he/him/his
 ### feel free to interact, I don't bite!
-<img src="https://i.pinimg.com/736x/64/75/03/6475038cef8fb0f254823fa46c476d5e.jpg"/>
+<img src="https://i.pinimg.com/736x/e5/58/13/e558130574a41b1f6d64ee6d666dc505.jpg"/>
 
 
 <!--
