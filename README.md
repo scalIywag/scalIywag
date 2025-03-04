@@ -1,6 +1,6 @@
 ## howdy! 
 ### call me josh! he/him/his
-### minor!!! dni 18+!!! <img src="https://i.imgur.com/BUcNTzP.gif"/>
+### <img src="https://i.imgur.com/BUcNTzP.gif"/> minor!!! dni 18+!!! <img src="https://i.imgur.com/BUcNTzP.gif"/>
 ### feel free to interact, I don't bite!
 <img src="https://i.pinimg.com/736x/e5/58/13/e558130574a41b1f6d64ee6d666dc505.jpg"/>
 
