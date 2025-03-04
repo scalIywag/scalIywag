@@ -2,7 +2,9 @@
 ### call me josh! he/him/his
 ### <img src="https://i.imgur.com/BUcNTzP.gif"/> minor!!! dni 18+!!! <img src="https://i.imgur.com/BUcNTzP.gif"/>
 ### feel free to interact, I don't bite!
+- multi-fandom freak
 <img src="https://i.pinimg.com/736x/e5/58/13/e558130574a41b1f6d64ee6d666dc505.jpg"/>
+<img src="https://i.pinimg.com/736x/c8/bf/b6/c8bfb677f8892d4eaecec91fb5acc245.jpg"/>
 
 
 <!--
