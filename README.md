@@ -1,7 +1,7 @@
 ## howdy! <img src="https://i.imgur.com/iH75pGc.gif"/>
 ### call me josh! he/him/his
 ### <img src="https://i.imgur.com/BUcNTzP.gif"/> minor!!! dni 18+!!! <img src="https://i.imgur.com/BUcNTzP.gif"/>
-### feel free to interact, I don't bite!
+### feel free to interact, I don't bite! (i do suck at facilitating interactions though, sorry if im slow ;-;)
 - multi-fandom freak <img src="https://i.imgur.com/TuGwTAK.gif"/>
 - neil perry fictkin <img src="https://i.imgur.com/H4w3DSt.gif"/>
 - canonically a werewolf <img src="https://i.imgur.com/lDs9tqm.gif"/>
