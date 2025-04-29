@@ -8,7 +8,7 @@
 ### still trying to work socials out, but i'm @/scaliywag or @/slyndryt pretty much anywhere!
 - i make art! more than willing to do art trades or commissions!!!!!
 - discord is slyndryt, but please interact elsewhere first!
--<img src=" /></a>
+
 - please check out my strawpage or spacehey for more info! no clue what else to put tbh
 - main fandoms: house md, good omens, dead poets society (<3), arcane, mcu, doctor who, hannibal, and much more that im blanking on at the moment,, lol
 
